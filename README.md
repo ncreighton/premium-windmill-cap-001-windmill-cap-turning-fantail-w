@@ -1,0 +1,2 @@
+# premium-windmill-cap-001-windmill-cap-turning-fantail-w
+Tired of losing track of cap turning schedules, weather forecasts, and part inventories across sticky notes and spreadsheets? The 'Windmill Cap Turning Fantail Weather Vane Planner' synchronizes every windmill component in one Notion hub.  This Notion template eliminates the chaos of managing multiple windmill cap turning jobs and fantail weather v
